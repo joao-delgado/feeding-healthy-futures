@@ -1,0 +1,6 @@
+# Global Supply Chain 
+
+[FAO ](https://www.fao.org/4/y4252e/y4252e11.htm)
+> # Agricultural trade, trade policies and the global food system
+> 
+> For centuries countries have relied on trade in agricultural and food commodities to supplement and complement their domestic production. The uneven distribution of land resources and the influence of climatic zones on the ability to raise plants and animals have led to trade between and within continents. Historical patterns of settlement and colonization contributed to the definition of trade patterns and to the emergence of an infrastructure to support such trade. More recently, transnational firms with global production and distribution systems have taken over from post-colonial trade structures as a paradigm for the organization of world agricultural trade. Changes in consumer taste have encouraged the emergence of global markets and added to the significance of trade. Few countries could survive the elimination of agricultural trade without a considerable drop in national income, and none could do so without considerable reduction in consumer choice and well-being.

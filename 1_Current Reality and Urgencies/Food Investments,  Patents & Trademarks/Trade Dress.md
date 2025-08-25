@@ -1,0 +1,7 @@
+---
+created: 2025-02-27T15:14
+updated: 2025-02-27T15:15
+---
+[![](https://www.food-safety.com/fsm/assets/Image/Goldfish.png)](https://www.food-safety.com/fsm/assets/Image/Goldfish.png "Click on the image to see a larger version.")Trade dress is a subset of trademark law that protects the design, shape, color, packaging, or appearance of a product, so long as these characteristics work as a source identifier for the consumer. Simply put, trade dress protects the overall look and feel of a product, as long as its owner can show that the consumer will immediately associate this look and feel with their brand. Based on this, Pepperidge Farm was able to obtain trade dress protection on its famous Goldfish crackers, Coca-Cola on its famous Coca-Cola bottle, and Hard Rock Cafe on their buildings.  
+  
+[![](https://www.food-safety.com/fsm/assets/Image/Cola.png)](https://www.food-safety.com/fsm/assets/Image/Cola.png "Click on the image to see a larger version.")These famous examples illustrate that trade dress can be an extremely powerful protection tool. However, such protection may not be available for every brand, as trade dress protection requires a fairly high standard of originality, substantial marketing investment, and a certain degree of notoriety.[[3](https://www.food-safety.com/articles/6872-intellectual-property-protection-in-the-food-industry#References)]  

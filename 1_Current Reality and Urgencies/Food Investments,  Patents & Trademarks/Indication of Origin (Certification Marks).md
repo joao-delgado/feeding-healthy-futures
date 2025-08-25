@@ -1,0 +1,5 @@
+---
+created: 2025-02-27T15:17
+updated: 2025-02-27T15:17
+---
+With increasing consumer interest around traceability and food safety issues, information about the origin of food, conditions, and manufacturing processes of food products has acquired growing value. As such, geographical indications, labels, collective marks, certification marks, and indications of origin are increasingly used to convey information to consumers. These indications are used to provide information on not only the origin of a product but also on the quality and safety associated with a certain geographical location, territory, source, or manufacturing process. The European Union recently also created certification marks as a response to this increased consumer awareness. Given the influence these indications have on buying behavior and the role they play in increasing food safety, there is no doubt that use of these indications will continue to grow.  
